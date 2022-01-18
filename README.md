@@ -1,1 +1,1 @@
-# Recipes
+masala sandwich recipe | mumbai masala toast sandwich | aloo masala cheese toast with step by step photo and video recipe. sandwich recipes are not native to indian cuisine and were recently introduced to it. even though it started as a breakfast meal, but has been explored with many other options with street food snacks as one popular choice. these are generally loaded with stuffing and condiments and masala sandwich recipe is one such popular recipe from mumbai streets.
